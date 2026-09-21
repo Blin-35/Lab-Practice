@@ -1,0 +1,1 @@
+I want to buy you something, but I don't have any money. I don't have any money.
